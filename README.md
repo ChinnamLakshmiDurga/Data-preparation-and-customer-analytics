@@ -15,4 +15,4 @@ Being a part of Quantium’s retail analytics team and we have been approached b
 
 ### Here's the link for those who are willing to join the program.
 
-[Quantinum Data Analytics Virtual Experience Program](https://www.theforage.com/virtual-internships/NkaC7knWtjSbi6aYv?ref=ByYjs2CCxqiLYJgNg)
+[Quantium Data Analytics Virtual Experience Program](https://www.theforage.com/virtual-internships/NkaC7knWtjSbi6aYv?ref=ByYjs2CCxqiLYJgNg)
