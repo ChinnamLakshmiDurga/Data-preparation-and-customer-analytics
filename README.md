@@ -12,7 +12,6 @@ Being a part of Quantium’s retail analytics team and we have been approached b
 🎯 **Deep dive into customer segments** – Defining our recommendation from our insights, determining which segments we should be targeting, if packet sizes are relative and form an overall conclusion based on our analysis. 
 
 
-
 ### Here's the link for those who are willing to join the program.
 
 [Quantium Data Analytics Virtual Experience Program](https://www.theforage.com/virtual-internships/NkaC7knWtjSbi6aYv?ref=ByYjs2CCxqiLYJgNg)
